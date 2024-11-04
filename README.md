@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Java at my high school and C++ at Magshimim
 - 💞️ I’m looking to collaborate on love ya know
 - 📫 How to reach me Avnerpro71@gmail.com, don't judge me it's a very old email
-- 😄 Pronouns: he/him
+- 😄 Pronouns: I'm/Him
 - ⚡ Fun fact: i can squat 110kg/242lb
 
 <!---
